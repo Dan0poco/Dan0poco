@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dan0poco
+- 👋 Hi, I’m @Dan0poco im a very young kid who likes to do computer nerd things
 
 
 <!---
